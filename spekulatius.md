@@ -6,16 +6,14 @@
 
 ## Zutaten
 
-| Menge       | Zutat                  |
-| ----------- | ---------------------- |
-| 500g        | Mehl                   |
-| 2 Teelöffel | Backpulver, gestrichen |
-| 250g        | Zucker                 |
-| 1 Päckchen  | Spekulatiusgewürz      |
-| 1 Prise     | Salz                   |
-| 2           | Eier                   |
-| 200g        | weiche Butter          |
-| 100g        | gemahlene Mandeln      |
+- 500g Mehl
+- 2 gestrichene Teelöffel Backpulver
+- 250g Zucker
+- 1 Pck. Spekulatiusgewürz
+- 1 Prise Salz
+- 2 Eier
+- 200g weiche Butter
+- 100g gemahlene Mandeln
 
 ## Zubereitung
 
