@@ -11,4 +11,8 @@
 
 ## Zubereitung
 
-Die Eier und Milch in eine Auflaufform geben und mischen. Die Toastbrotscheiben toasten und etwas auskühlen lassen. Dann in die Eiermasse legen und sich für max. 1 min auf jeder Seite vollsaugen lassen. In einer Pfanne die Butter mit dem Zucker erhitzen und die Toastbrotscheiben darin anbraten. Mit dem Puderzucker o.Ä. nach Belieben dekorieren und warm servieren.
+Die Eier und Milch in eine Auflaufform geben und mischen. 
+Die Toastbrotscheiben toasten und etwas auskühlen lassen. 
+Dann in die Eiermasse legen und sich für max. 1 min auf jeder Seite vollsaugen lassen. 
+In einer Pfanne die Butter mit dem Zucker erhitzen und die Toastbrotscheiben darin anbraten. 
+Mit dem Puderzucker o.Ä. nach Belieben dekorieren und warm servieren.
