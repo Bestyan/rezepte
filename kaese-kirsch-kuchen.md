@@ -15,7 +15,7 @@ Mengenangaben für 1 Springform. Für 1 Backblech die doppelte Menge nehmen!
 
 **Korpus**
 
-- 2 Gläser Kirschen
+- 2 Gläser Kirschen (je 350g Abtropfgewicht)
 - 1000g Magerquark
 - 150 - 200g Zucker
 - 125g weiche Margarine
