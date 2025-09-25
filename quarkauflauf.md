@@ -15,6 +15,7 @@
 - 250g beliebiges Obst
 - 1-2 Esslöffel Semmelbrösel
 - 1-2 Esslöffel Butter
+- 1 Glas Kirschen
 
 ## Zubereitung
 
@@ -23,3 +24,4 @@ Mondamin, Grieß und Backpulver mischen und unter den Quark ziehen.
 (Rohes, gezuckertes oder gedünstetes, abgetropftest Obst in eine gefettete Auflaufform geben) und den Quarkteig daraufstreichen.
 
 Den Auflauf mit Semmelbröseln bestreuen, mit Butterflöckchen beklegen und 45 min bei 175-200°C backen.
+Mit Kirschen aus dem Glas servieren.
