@@ -15,7 +15,7 @@
 - 250g beliebiges Obst
 - 1-2 Esslöffel Semmelbrösel
 - 1-2 Esslöffel Butter
-- 1 Glas Kirschen
+- 1 Glas Kirschen (350g Abtropfgewicht)
 
 ## Zubereitung
 
