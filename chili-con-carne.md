@@ -10,10 +10,10 @@
 - 3 Paprika (nach Möglichkeit orange, rot, grün)
 - 2 Esslöffel Tomatenmark
 - 6-8 Zehen Knoblauch
-- 800g gehackte Tomaten
+- 2 Dosen (800g) gehackte Tomaten
 - 500 ml Brühe
-- 2 Dosen Kidneybohnen (je 280g Abtropfgewicht)
-- 1 Dose Mais (200g)
+- 2 Dosen (je 280g Abtropfgewicht) Kidneybohnen 
+- 1 Dose (200g) Mais
 - Paprika rosenscharf
 - Cayennepfeffer
 - Salz
